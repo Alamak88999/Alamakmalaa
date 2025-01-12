@@ -1,0 +1,2 @@
+# Alamakmalaa
+Gaktaumalas
